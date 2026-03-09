@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 
 - 🔭 I’m interested in learning more about chemistry
 - 🌱 I’m working on gaining extra credits fo
-- 👯 My favorite hobby is sleeping 
+
 
